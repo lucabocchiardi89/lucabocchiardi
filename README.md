@@ -11,4 +11,4 @@ Featured articles:
 * ✨ [Product vs Project Teams](https://lifeisaproduct.substack.com/p/product-vs-project-teams)
 
 How to reach me:
-* 📫 [@lukab_89](https://twitter.com/lukab_89) on twitter or luca.bocchiardi [at] gmail.com
+* 📫 [@lukab_89](https://twitter.com/lukab_89) on twitter or luca.bocchiardi [at] pm.me
